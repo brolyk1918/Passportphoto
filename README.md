@@ -214,4 +214,4 @@ PassportPhoto is offered as a **complete free version** with all features includ
 Ready to create your perfect ID photographs? **Download PassportPhoto now for free and start your journey!**
 
 ---
-**Last updated:** 2026-09-21 21:38:54 UTC
+**Last updated:** 2026-09-22 00:32:54 UTC
